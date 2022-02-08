@@ -2,9 +2,9 @@
 
 ### **MANTANNYA HUJAIPONG**
 
-[huzaifah mubarok](https://www.instagram.com/hudzai_mubarok/)
+[huzaifah mubarok](https://www.instagram.com/hudzai_mubarok/) :heart:
 
-- Andi
+- Andi 
 - Fia
 - Dini
 - Finda
