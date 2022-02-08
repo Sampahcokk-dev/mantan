@@ -1,8 +1,8 @@
 # Mantan V 1.0
 
-### MANTANNYA HUJAIPONG
+### **MANTANNYA HUJAIPONG**
 
-[huzaifah mubarok]("https://www.instagram.com/hudzai_mubarok/")
+[huzaifah mubarok](https://www.instagram.com/hudzai_mubarok/)
 
 - Andi
 - Fia
